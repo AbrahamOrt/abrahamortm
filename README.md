@@ -1,3 +1,3 @@
 # Bienvenidos al perfil de Abraham Ortiz:wave:
 
-## Que pasa macaco bienvenido.:monkey_face:
+## Que pasa macaco.:monkey_face:
